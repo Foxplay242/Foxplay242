@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Foxplay242
+- 👀 I’m interested in Making Exploits 
+- 🌱 I’m currently learning Programming, more like C++, Node.js (JavaScript), ik its not the same
+- 💞️ I’m looking to collaborate on Updating ur roblox dll.
+- 📫 How to reach me Lord Kiro#6855
